@@ -3,7 +3,7 @@
 https://www.sonyoutube.com/download/47acaac44b294959c9358c15ccbbd719.mp3
 
 #Magic Key
-https://www.sonyoutube.com/download/5bc35f3488a96e0c2f8c0e616157c0ec.mp3
+https://www.sonyoutube.com/download/d5c1c36c4561a2e11ce944b2927a5e3a.mp3
 
 #Attente
 https://www.sonyoutube.com/download/6954a976fc319063f490eaefee050c62.mp3
