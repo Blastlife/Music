@@ -18,13 +18,10 @@ https://www.sonyoutube.com/download/21c9550a30b0ffcfc0f5133a7e011cd3.mp3
 https://www.sonyoutube.com/download/fbe9645f562ec8b28c61ea86188c644c.mp3
 
 #Somebody
-https://www.sonyoutube.com/download/4689373bf692773177e5fc826843c7ed.mp3
+https://www.sonyoutube.com/download/e6f5936f6ddc7f6f3493fc99ece41f5a.mp3
 
-#Joe Le Taxi
-https://www.sonyoutube.com/download/3ab5dc1c73ef27553a1046c87c886dfe.mp3
-
-#Jain Alright 
-https://www.sonyoutube.com/download/67a0e3a9957516f9065cfe709133b8b3.mp3
+#Gangta's Paradise 
+https://www.sonyoutube.com/download/b040329355794982e83caa1f235db336.mp3
 
 #Queen Bohemian
 https://www.sonyoutube.com/download/c3e33bfb9f9bf97f9d47402851848d08.mp3
